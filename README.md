@@ -8,6 +8,7 @@ At MetricsMind, we understand that migrating to GA4 can be overwhelming. That's 
 
 Contact Us
 partners.metricsmind@gmail.com
+or
 +2783 443 4168
 
 Request a free quote here:
